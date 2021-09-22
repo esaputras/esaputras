@@ -8,7 +8,7 @@ I’m interested in data analysis and data science and my latest project for my 
 I’m currently learning about data analysis fundamentals and going to move to learn more to data science afterwards  
 
 You could contact me on :
-  > **esaputras354@gmail.com**
+  > **esaputras354@gmail.com** <br />
   > **+6289505560404**
 
 
