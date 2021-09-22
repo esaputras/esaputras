@@ -1,5 +1,5 @@
 Hi, I’m Esa Putra Saktiawan<br />
-<br />
+
 I'm currently live in Jakarta, Indonesia<br />
 I've got my Baachelor Degree from Universitas Negeri Jakarta in Indonesia<br />
 
