@@ -9,7 +9,7 @@ I’m currently working as a Data Analyst and Data Engineer at Kodekiddo. I am a
 
 You could contact me on :
   > **esaputras354@gmail.com** <br />
-  > **+6289505560404**
+  > **+6287775925842**
 
 
 
